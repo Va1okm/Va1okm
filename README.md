@@ -11,15 +11,15 @@
 
 - 🤝 I’m looking for help with **no**
 
-- 👨‍💻 All of my projects are available at [no projects](no projects)
+- 👨‍💻 All of my projects are available at **no projects**
 
-- 📝 I regularly write articles on [why would i do that](why would i do that)
+- 📝 I regularly write articles on **why would i do that**
 
 - 💬 Ask me about **don't**
 
 - 📫 How to reach me **Va1okm#8790**
 
-- 📄 Know about my experiences [you wouldn't care anyways](you wouldn't care anyways)
+- 📄 Know about my experiences **you wouldn't care anyways**
 
 - ⚡ Fun fact **?????**
 
