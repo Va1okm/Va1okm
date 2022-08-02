@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **don't**
 
-- 📫 How to reach me **Va1okm#8790**
+- 📫 How to reach me **VaiOkm#8790**
 
 - 📄 Know about my experiences **you wouldn't care anyways**
 
